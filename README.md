@@ -1,0 +1,1 @@
+# seinauchida.github.io
